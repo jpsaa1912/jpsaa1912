@@ -19,6 +19,6 @@ PROHIBITED USE without written authorization:
 - Use in third party products, services or web sites
 - Registered as a brand terceros
 
-For requests for use, contact: info@amphotericstudio.com
+For requests for use, contact: contact@amphotericstudio.com
 
 © 2025 Amphoteric Ltd. All rights reserved.
